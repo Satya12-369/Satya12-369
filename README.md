@@ -9,3 +9,5 @@
 - 😄 Pronouns: Him/hizzle/thine
 - ⚡ Fun fact: I am also a musician and will be using my AI capabilities to produce amazing songs. Let's collaborate!
 
+
+I am not a coder. I am an artist. It just seems that code keeps getting in the way 😂
